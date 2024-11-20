@@ -1,4 +1,4 @@
 - 👋 Hi, I’m jackson
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on how to code?
-- 📫 How to reach me jackson.klingaman22@gmail.com
+- 📫 How to reach me jgklingaman@gmail.com
